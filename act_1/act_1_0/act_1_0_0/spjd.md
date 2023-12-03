@@ -45,4 +45,13 @@
   - Its a process and I'm grateful that I'm back to 9 mile walks (not runs)
   - Also back to swimming having found temporary relief swimmers sinusitis
   - Thankful to God for  providing outfit and shoes to facilitate my return
-  - 
+  - Thankful for being on track with my PhD thesis
+    - Dec 21st thesis committee meeting (required by school); pray that I have aim 1 data and analysis complete by then
+    - Pray that I remain on course to complete by May 2024
+  - Pray that I complete the final year of my "Career Development" grant and complete its aims - K08
+    - The three aims of my grant are identical to the aims for my thesis
+    - And the PhD has been the "career development" component
+    - Thankful for successful submission of RPPR (research performance progress report on Nov 15)
+  - Grant applications for R03 & R21
+    - By Feb 15
+  - I pray for God to enable to spend time with family & friends this holiday
