@@ -29,7 +29,9 @@
     - He wants to go to Strathmore University in Nairobi
     - Believe in God for finances
     - What he wants to study here is not available in Uganda (Data Science)
-    - 
+  - Martin has been promoted to S2 and we are thankful to God for this
+  - Lisa is going to boarding school; she did well and got a 4 in her mock
+    - We pray that she adapts to this change
   
 ## J
 - Grateful for completing contract review process
@@ -39,3 +41,8 @@
 
 
 ## D
+- Thankful to God for the healing process of my left hip & swimmers sinusitis
+  - Its a process and I'm grateful that I'm back to 9 mile walks (not runs)
+  - Also back to swimming having found temporary relief swimmers sinusitis
+  - Thankful to God for  providing outfit and shoes to facilitate my return
+  - 
