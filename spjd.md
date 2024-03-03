@@ -24,7 +24,8 @@
    - Also there is restructuring at work and not sure it will be in my favor
    - Our bus and cashcow is grounded and are praying for resources to get it back onto the road
 - The children are fine and we thank God for that
-- Nicole was taking an antifungal and vomited after a meal; but is otherwise ok 
+- Nicole was taking an antifungal and vomited after a meal; but is otherwise ok
+- Applying for scholarship to finish PhD (open to all PhD students at Makerere by GoU)
 ## J 
 - Thanksgiving.
    - At work and in general. We're in good health
@@ -49,4 +50,8 @@
       - J
          - Close friend & advisor in lifes journey
          - Dhatemwa kulala & very different personalities that have been complementary
-   -    
+      - Night and other siblings
+         - Thankful and pray for closer relationship especially given age difference
+- Prayers
+   - Grants
+   - Complete my PhD    
