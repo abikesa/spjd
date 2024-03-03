@@ -1,6 +1,18 @@
 # 03/02/2024
 
 ## S
+- Thanksgiving for Lauren's turnaround
+   - She's pursuing an education in NYC, where she's always wanted to be
+   - Provision for her tuition and housing
+   - Lift her up in prayers: will need a more permanent residency in NYC 
+- Life insurance studies
+   - Board exam scheduled next saturday; prayer to pass and get agents licence. This would translate to passive income for retirement
+- Applied for jobs (IDIQs)
+   - Chief of party/Country positions
+   - Many opportunities also in DC area 
+- Good health
+   - Thanksful for great health. And pray for health and protection for the children and also for mummy.
+   - Also pray for the rest of the families health 
 ## P
 - Pray for safe journey to the US for Dorothy & Mother-in-law and that God blesses their time
 - Expert evaluation of the thesis model in the next two weeks to be able to complete by May
@@ -25,3 +37,16 @@
    - Mummy is ammenable to knee surgery after US trip
    - Have zoom call with Dr. Sekimpi for further discussions 
 ## D
+- Thanksgiving
+   - Health and strength. Every new day is a day for celebration
+   - Family for a beautiful life
+      - Sarah introduced me to jogging
+      - P introduced me to music
+         - The ear
+         - Performance
+         - Piano
+         - Guitar
+      - J
+         - Close friend & advisor in lifes journey
+         - Dhatemwa kulala & very different personalities that have been complementary
+   -    
