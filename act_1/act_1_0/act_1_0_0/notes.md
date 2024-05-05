@@ -763,6 +763,23 @@ J: I can stop recording, and then.
 # 05/04/24
 
 ### S
+- Grateful: Lauren is settling into NYC
+   - Pray for fashion publication internship
+   - Has made friends and is looking for another apartment to move to
+   - Continue to pray for provision: double rent (Virginia & New York)
+- Passed board exams for life insurance studies
+   - Licensed in Virginia to advise on life insurance and sell products
+- Still praying for country-director positions, my dream
+- Very grateful for good health
+- Kevin passed his GMAT and will start his Masters degree this fall (While working)
+- Financial obligations have increased and continue to pray for a breakthrough
+-  
 ### P
+- God blessed Dorothy's journey to the US
+- Submitted entire thesis and have received comments
+   - Working on revisions
+- The issue of salary corrections isn't yet done
+   - Put everything in writing so far, all the formal stuff
+   - Leaving all the rest to God  
 ### J
 ### D
