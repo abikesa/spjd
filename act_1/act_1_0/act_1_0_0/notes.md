@@ -780,6 +780,12 @@ J: I can stop recording, and then.
    - Working on revisions
 - The issue of salary corrections isn't yet done
    - Put everything in writing so far, all the formal stuff
-   - Leaving all the rest to God  
+   - Leaving all the rest to God
+- Believing in God for what is next career-wise
+- Our Bus and cashcow is now back and can contribute to the bazeyi
+- All the children are back from school
+   - Bills have shotup but of course its good to have them around
+- Nicole completely recovered from her fungal infection
+- Lisa has lost weight perhaps due to peer pressure at school? 
 ### J
 ### D
