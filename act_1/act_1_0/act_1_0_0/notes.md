@@ -759,3 +759,10 @@ J: I can stop recording, and then.
 - Prayers
    - Grants
    - Complete my PhD    
+
+# 05/04/24
+
+### S
+### P
+### J
+### D
