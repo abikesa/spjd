@@ -781,11 +781,34 @@ J: I can stop recording, and then.
 - The issue of salary corrections isn't yet done
    - Put everything in writing so far, all the formal stuff
    - Leaving all the rest to God
-- Believing in God for what is next career-wise
+- Believing in God for what is next careerwise
 - Our Bus and cashcow is now back and can contribute to the bazeyi
 - All the children are back from school
    - Bills have shotup but of course its good to have them around
 - Nicole completely recovered from her fungal infection
-- Lisa has lost weight perhaps due to peer pressure at school? 
+- Lisa has lost weight perhaps due to peer pressure at school?
+- Thank God for the PhD Scholarship and clearing fees for the 4th year!!
+- D's fees are fully paid, accommodation is booked
+   - He'll be starting at Strathmore in June
+- Pray to submit thesis by end of May
+ 
 ### J
+- Thanksgiving
+   - Work is going on well
+   - I'm in good health
+   - Exercizing once a week, every saturday
+   - Girls continue to do well in school
+   - Bria is sitting her Cambridge A-levels (the S5 ones)
+      - She's improved in Economics
+   - Brenda: continue praying for her strength and fortitude in a distant land (Sierra Leone)
+- Grateful for the job with USAID
+   - May the lords will be done
+   - There may be opportunities out there that I've appled to including African Development Bank
+      - Such opportunities help with subsidies with school fees
+   - TCN: third country national (With USAID), with 5-year contracts (equivalent to 15y salary of typical standard job)
+- Mummy
+   - Discuss possible surgery with Dr. Sekimpi
+   - Also explore whether the drug Ozempik may benefit her 
 ### D
+
+
