@@ -770,6 +770,8 @@ J: I can stop recording, and then.
 - Passed board exams for life insurance studies
    - Licensed in Virginia to advise on life insurance and sell products
 - Still praying for country-director positions, my dream
+   - Be able to work in Africa
+   - And be physically closer to mummy and daddy to support them
 - Very grateful for good health
 - Kevin passed his GMAT and will start his Masters degree this fall (While working)
 - Financial obligations have increased and continue to pray for a breakthrough
@@ -810,5 +812,20 @@ J: I can stop recording, and then.
    - Discuss possible surgery with Dr. Sekimpi
    - Also explore whether the drug Ozempik may benefit her 
 ### D
-
+   - Health and strength
+   - Thankful for little tiny discoveries like the joy of trotting without airpods
+   - Enjoying music more than ever before
+      - Gospel Music University has helped me decode the things that have moved my spirit the most: Marvin Sapp
+   - Continue to thank God for you guys: mummy, daddy, and siblings
+      - Thankful for the opportunity to have them visit
+      - And to travel with them 
+   - Prayers
+      - Complete and defend my thesis by Oct 2024
+      - Sell a potential business idea to department of epidemiology, later to surgery, and potentially to other institutions
+         - Leveraging technological platform and AI to improve the efficiency of our efforts towards our mission goals
+            - Patient care
+            - Research
+            - Teaching 
+      - Get time and focus to write and submit successful grants
+      -    
 
