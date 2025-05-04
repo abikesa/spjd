@@ -72,3 +72,4 @@ Do not attempt compilation.
 # flick 20250502145432-GP4a
 # flick 20250504040552-R2lR
 # flick 20250504223219-fUpi
+# flick 20250504225133-NXMq
