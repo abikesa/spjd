@@ -83,7 +83,7 @@ def main(commit_message, git_remote, ghp_remote):
         "pdfs", "figures", "media", "testbin", "nis", "myhtml", "dedication", "python", "ai",
         "r", "stata", "bash", "xml", "data", "aperitivo", "antipasto", "primo", "secondo",
         "contorno", "insalata", "formaggio-e-frutta", "dolce", "caffe", "digestivo", "ukubona",
-        "the-rug"
+        "the-rug", "spjd-rebuild"
     ]
     for d in extras:
         if os.path.isdir(d):
