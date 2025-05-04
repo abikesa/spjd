@@ -455,7 +455,7 @@ Larry
    - They are well and strong; thank God.
    
 ### J
-1. Gratitude:
+1. Gratitude:`
    - Traveled to Freetown, and the destitution there was eye-opening.
    - Was able to help Brenda settle in: secure a nice apartment.
    - Keep praying for her.
